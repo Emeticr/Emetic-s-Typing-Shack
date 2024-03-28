@@ -1,4 +1,3 @@
-
 #Mr. Dirty - By Emetic
 
 Chapter 1 - Dirty: Mr. Dirty was very, very dirty until he got a shower. Then he realized he was too lazy to take a shower, so he just got wet, dried off, and got to work on the Mr. Clean Magic Eraser.
