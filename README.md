@@ -1,4 +1,3 @@
-# Emetic-s-Typing-Shack
 
 #Mr. Dirty - By Emetic
 
