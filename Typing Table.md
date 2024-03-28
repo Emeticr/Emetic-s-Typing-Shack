@@ -1,6 +1,6 @@
 Email me at 14soaringelk@gmail.com multiple times for new stories, articils, etr.
 
-#Mr. Dirty - By Emetic
+#Mr. Dirty - By Emetic (AI Enhanced)
 
 Chapter 1 - Dirty:
 Mr. Dirty was very, very dirty until he learned about a shower. Then he realized he was too lazy to take a shower and he hated tap water touching him so he just went outside on a raiy day, dried off, and got to work on the Mr. Clean Magic Eraser so he never had to touch grass again.
