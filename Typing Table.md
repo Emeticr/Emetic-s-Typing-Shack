@@ -1,4 +1,4 @@
-Email me at 14soaringelk@gmail.com multiple times for new stories, articils, etr
+Email me at 14soaringelk@gmail.com multiple times for new stories, articils, etr.
 
 #Mr. Dirty - By Emetic
 
