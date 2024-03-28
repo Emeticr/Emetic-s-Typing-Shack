@@ -1,3 +1,5 @@
+Email me at 14soaringelk@gmail.com multiple times for new stories, articils, etr
+
 #Mr. Dirty - By Emetic
 
 Chapter 1 - Dirty:
